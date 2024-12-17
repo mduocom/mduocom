@@ -1,12 +1,99 @@
-- 👋 Hi, I’m @mduocom
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-mduocom/mduocom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<a href="https://m88duo.com/">M88</a> là một nhà cái trực tuyến uy tín hàng đầu tại Việt Nam, nổi bật với hơn 100 bàn chơi live dealer, công nghệ stream 4K và âm thanh vòm, mang lại trải nghiệm chơi game chân thực như tại casino thực tế. Là một trong những thương hiệu tiên phong trong ngành cá cược trực tuyến tại Việt Nam, M88 hỗ trợ nạp tiền qua các ngân hàng Việt Nam, đồng thời được kiểm soát và giám sát bởi PAGCOR.
+#m88 #trangchum88 #dangkym88 #dangnhapm88 #linkm88
+Thông tin liên hệ:
+- Website: <a href="https://m88duo.com/">https://m88duo.com/</a>
+- Địa chỉ: 2518 Đ. Phạm Thế Hiển, Phường 7, Quận 8, Hồ Chí Minh, Vietnam. 
+- Số Điện Thoại: 0322542219
+- Email: info@m88duo.com. 
+Socials:
+- <a href="https://www.facebook.com/m88duocom">https://www.facebook.com/m88duocom</a>
+- <a href="https://x.com/m88duocom">https://x.com/m88duocom</a>
+- <a href="https://www.youtube.com/@M88duoCom">https://www.youtube.com/@M88duoCom</a>
+- <a href="http://www.pinterest.com/m88duocom">http://www.pinterest.com/m88duocom</a>
+- <a href="https://vimeo.com/m88duocom">https://vimeo.com/m88duocom</a>
+- <a href="https://www.blogger.com/profile/00047203747731509629">https://www.blogger.com/profile/00047203747731509629</a>
+- <a href="https://gravatar.com/m88duocom">https://gravatar.com/m88duocom</a>
+- <a href="https://talk.plesk.com/members/mduocom.385103/">https://talk.plesk.com/members/mduocom.385103/</a>
+- <a href="https://talk.plesk.com/members/mduocom.385103/">https://talk.plesk.com/members/mduocom.385103/</a>
+- <a href="https://www.tumblr.com/m88duocom">https://www.tumblr.com/m88duocom</a>
+- <a href="https://www.openstreetmap.org/user/m88duocom">https://www.openstreetmap.org/user/m88duocom</a>
+- <a href="https://profile.hatena.ne.jp/m88duocom/profile">https://profile.hatena.ne.jp/m88duocom/profile</a>
+- <a href="https://archive.org/details/@m88duocom">https://archive.org/details/@m88duocom</a>
+- <a href="https://issuu.com/m88duocom">https://issuu.com/m88duocom</a>
+- <a href="https://www.twitch.tv/m88duocom">https://www.twitch.tv/m88duocom</a>
+- <a href="https://m88duocom.bandcamp.com/album/m88duocom">https://m88duocom.bandcamp.com/album/m88duocom</a>
+- <a href="https://m88duocom.design.webflow.com/">https://m88duocom.design.webflow.com/</a>
+- <a href="https://disqus.com/by/m88duocom/about/">https://disqus.com/by/m88duocom/about/</a>
+- <a href="https://app.readthedocs.org/profiles/m88duocom/">https://app.readthedocs.org/profiles/m88duocom/</a>
+- <a href="https://about.me/m88duocom">https://about.me/m88duocom</a>
+- <a href="https://www.mixcloud.com/m88duocom/">https://www.mixcloud.com/m88duocom/</a>
+- <a href="https://hub.docker.com/u/m88duocom">https://hub.docker.com/u/m88duocom</a>
+- <a href="https://500px.com/p/m88duocom">https://500px.com/p/m88duocom</a>
+- <a href="https://www.producthunt.com/@m88duocom">https://www.producthunt.com/@m88duocom</a>
+- <a href="https://m88duocom.gitbook.io/m88duocom">https://m88duocom.gitbook.io/m88duocom</a>
+- <a href="https://www.zillow.com/profile/m88duocom1">https://www.zillow.com/profile/m88duocom1</a>
+- <a href="https://excited-boa-4c8.notion.site/m88duocom-15da612c56d580a0a60bd7dba4d161d3?pvs=73">https://excited-boa-4c8.notion.site/m88duocom-15da612c56d580a0a60bd7dba4d161d3?pvs=73</a>
+- <a href="https://gitee.com/luuquantrieu">https://gitee.com/luuquantrieu</a>
+- <a href="https://sketchfab.com/m88duocom">https://sketchfab.com/m88duocom</a>
+- <a href="https://www.discogs.com/fr/user/m88duocom">https://www.discogs.com/fr/user/m88duocom</a>
+- <a href="https://www.reverbnation.com/artist/m88duocom">https://www.reverbnation.com/artist/m88duocom</a>
+- <a href="https://connect.garmin.com/modern/profile/86a0bf36-5caa-4b51-8e95-c2ee69145388">https://connect.garmin.com/modern/profile/86a0bf36-5caa-4b51-8e95-c2ee69145388</a>
+- <a href="https://luuquantrieu29184.systeme.io/">https://luuquantrieu29184.systeme.io/</a>
+- <a href="https://public.tableau.com/app/profile/m88duo.com/vizzes">https://public.tableau.com/app/profile/m88duo.com/vizzes</a>
+- <a href="https://tvchrist.ning.com/profile/m88duocom">https://tvchrist.ning.com/profile/m88duocom</a>
+- <a href="https://cdn.muvizu.com/Profile/m88duocom/Latest">https://cdn.muvizu.com/Profile/m88duocom/Latest</a>
+- <a href="https://heylink.me/m88duocom/">https://heylink.me/m88duocom/</a>
+- <a href="https://jsfiddle.net/haoj4bLk/">https://jsfiddle.net/haoj4bLk/</a>
+- <a href="https://community.fabric.microsoft.com/t5/user/viewprofilepage/user-id/901452">https://community.fabric.microsoft.com/t5/user/viewprofilepage/user-id/901452</a>
+- <a href="https://www.walkscore.com/people/238555570705/m88duocom">https://www.walkscore.com/people/238555570705/m88duocom</a>
+- <a href="https://community.articulate.com/users/m88duocom/1523528">https://community.articulate.com/users/m88duocom/1523528</a>
+- <a href="https://hackerone.com/m88duocom">https://hackerone.com/m88duocom</a>
+- <a href="https://www.diigo.com/profile/m88duocom">https://www.diigo.com/profile/m88duocom</a>
+- <a href="https://telegra.ph/m88duocom-12-15">https://telegra.ph/m88duocom-12-15</a>
+- <a href="https://host.io/m88duo.com">https://host.io/m88duo.com</a>
+- <a href="https://wakelet.com/@m88duocom49075">https://wakelet.com/@m88duocom49075</a>
+- <a href="https://forum.acronis.com/user/770329">https://forum.acronis.com/user/770329</a>
+- <a href="https://dreevoo.com/profile_info.php?pid=724713">https://dreevoo.com/profile_info.php?pid=724713</a>
+- <a href="https://taplink.cc/m88duocom">https://taplink.cc/m88duocom</a>
+- <a href="https://hashnode.com/@m88duocom">https://hashnode.com/@m88duocom</a>
+- <a href="https://anyflip.com/homepage/qhdrm/preview#About">https://anyflip.com/homepage/qhdrm/preview#About</a>
+- <a href="https://forum.dmec.vn/index.php?members/m88duocom.90862/">https://forum.dmec.vn/index.php?members/m88duocom.90862/</a>
+- <a href="https://www.instapaper.com/p/15512247">https://www.instapaper.com/p/15512247</a>
+- <a href="https://www.beatstars.com/luuquantrieu29184/about">https://www.beatstars.com/luuquantrieu29184/about</a>
+- <a href="https://beacons.ai/m88duocom">https://beacons.ai/m88duocom</a>
+- <a href="http://m88duocom.minitokyo.net/">http://m88duocom.minitokyo.net/</a>
+- <a href="https://jaga.link/m88duocom">https://jaga.link/m88duocom</a>
+- <a href="https://s.id/m88duocom">https://s.id/m88duocom</a>
+- <a href="https://writexo.com/z4t72oou">https://writexo.com/z4t72oou</a>
+- <a href="https://audiomack.com/m88duocom">https://audiomack.com/m88duocom</a>
+- <a href="https://myanimelist.net/profile/m88duocom">https://myanimelist.net/profile/m88duocom</a>
+- <a href="https://linkr.bio/m88duocom">https://linkr.bio/m88duocom</a>
+- <a href="https://forum.codeigniter.com/member.php?action=profile&uid=140943">https://forum.codeigniter.com/member.php?action=profile&uid=140943</a>
+- <a href="https://www.mindmeister.com/app/map/3550159014?t=OM4GZqhYBM">https://www.mindmeister.com/app/map/3550159014?t=OM4GZqhYBM</a>
+- <a href="https://leetcode.com/u/m88duocom/">https://leetcode.com/u/m88duocom/</a>
+- <a href="https://hackmd.io/@m88duocom/ByeBMX2Nkx">https://hackmd.io/@m88duocom/ByeBMX2Nkx</a>
+- <a href="https://www.elephantjournal.com/profile/m88duocom/">https://www.elephantjournal.com/profile/m88duocom/</a>
+- <a href="https://forum.index.hu/User/UserDescription?u=2051032">https://forum.index.hu/User/UserDescription?u=2051032</a>
+- <a href="https://dadazpharma.com/question/m88-link-m88-khuyen-mai-hap-dan-nha-cai-uy-tin-so-1-viet-nam/">https://dadazpharma.com/question/m88-link-m88-khuyen-mai-hap-dan-nha-cai-uy-tin-so-1-viet-nam/</a>
+- <a href="https://pxhere.com/en/photographer/4465972">https://pxhere.com/en/photographer/4465972</a>
+- <a href="https://starity.hu/profil/524397-m88duocom/">https://starity.hu/profil/524397-m88duocom/</a>
+- <a href="https://www.spigotmc.org/members/m88duocom.2183190/">https://www.spigotmc.org/members/m88duocom.2183190/</a>
+- <a href="https://www.furaffinity.net/user/m88duocom">https://www.furaffinity.net/user/m88duocom</a>
+- <a href="https://play.eslgaming.com/player/myinfos/20508779/#description">https://play.eslgaming.com/player/myinfos/20508779/#description</a>
+- <a href="https://www.silverstripe.org/ForumMemberProfile/show/196907">https://www.silverstripe.org/ForumMemberProfile/show/196907</a>
+- <a href="https://micro.blog/M88duo">https://micro.blog/M88duo</a>
+- <a href="https://www.emoneyspace.com/m88duocom">https://www.emoneyspace.com/m88duocom</a>
+- <a href="https://www.callupcontact.com/b/businessprofile/m88duocom/9427786">https://www.callupcontact.com/b/businessprofile/m88duocom/9427786</a>
+- <a href="https://www.intensedebate.com/people/mduocom">https://www.intensedebate.com/people/mduocom</a>
+- <a href="https://graphcommons.com/graphs/34bafbc5-1269-4162-a882-056d8e97156f?nodes=8efbadac-71af-429a-90ca-e8a71e6978a6">https://graphcommons.com/graphs/34bafbc5-1269-4162-a882-056d8e97156f?nodes=8efbadac-71af-429a-90ca-e8a71e6978a6</a>
+- <a href="https://www.niftygateway.com/@m88duocom/">https://www.niftygateway.com/@m88duocom/</a>
+- <a href="https://files.fm/m88duocom/info">https://files.fm/m88duocom/info</a>
+- <a href="https://booklog.jp/users/m88duocom/profile">https://booklog.jp/users/m88duocom/profile</a>
+- <a href="https://socialtrain.stage.lithium.com/t5/user/viewprofilepage/user-id/124974">https://socialtrain.stage.lithium.com/t5/user/viewprofilepage/user-id/124974</a>
+- <a href="https://app.scholasticahq.com/scholars/366023-m88duo-com">https://app.scholasticahq.com/scholars/366023-m88duo-com</a>
+- <a href="https://www.brownbook.net/business/53367648/m88duocom/">https://www.brownbook.net/business/53367648/m88duocom/</a>
+- <a href="https://community.alteryx.com/t5/user/viewprofilepage/user-id/662476">https://community.alteryx.com/t5/user/viewprofilepage/user-id/662476</a>
+- <a href="https://stocktwits.com/m88duocom">https://stocktwits.com/m88duocom</a>
+- <a href="https://luuquantrieu29184.wixsite.com/m88duocom">https://luuquantrieu29184.wixsite.com/m88duocom</a>
+- <a href="https://m88duocom.blogspot.com/2024/12/m88duocom.html">https://m88duocom.blogspot.com/2024/12/m88duocom.html</a>
+- <a href="https://m88duocomq.hashnode.dev/m88duocom">https://m88duocomq.hashnode.dev/m88duocom</a>
